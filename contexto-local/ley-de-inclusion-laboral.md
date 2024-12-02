@@ -82,7 +82,11 @@ Efectuar donaciones en dinero a proyectos o programas de asociaciones, corporaci
 #### Fuentes
 
 https://www.senadis.gob.cl/pag/420/1693/preguntas_frecuentes_ley_de_inclusion_laboral
+
 https://www.chileatiende.gob.cl/fichas/55629-ley-de-inclusion-laboral
+
 https://www.agci.cl/index.php/ley-de-inclusion-laboral
+
 https://www.suseso.cl/612/w3-article-673549.html
+
 https://fundacioncontrabajo.cl/blog/guias-para-la-empresa/guia-resumen-ley-21015/
